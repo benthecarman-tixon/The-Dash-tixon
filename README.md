@@ -1,0 +1,2 @@
+# The-dash-tixon
+TXCH wallet inter face     We will make every effort to build TXCH's technical support, trend and outlet, and tixoncoin will lead the next wealth feast. We will go online in eight countries around the world at the same time, and epidemic prevention and control will be normalized. TXCH will hold a global press conference and join hands with the capital market. In 2022, TXCH's main online line will be completed with all technologies. DASH's core team. Walk hand in hand.
